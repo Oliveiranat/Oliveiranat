@@ -1,6 +1,6 @@
 ### Oii! Eu sou a Natália Oliveira 🦄
 
-- 💻 Estou atualmente trabalhando com DataBases.
+- 💻 Sou Analista Funcional.
 - 😄 Pronouns: ela/dela
 
 <div align="center">
